@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @SK-Recruit
+- 👋 Hi, I’m @Sebastian Koch
 - 👀 I’m interested in finding Risk and Regulatory Professionals in Germany, Austria and Swizzerland. I’m mostly working for Professional Service Firms, Consultancies, Banks and Insurance Companies
 - 📫 How to reach me: sk@hoffmanngastrock.com
 
